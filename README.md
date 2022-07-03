@@ -1,17 +1,14 @@
-### Hi there 👋
+hello u-uwu, i am woman. please send me your c-credit card details uwu.. <3
 
-<!--
-**recognizing/recognizing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+                                                           ✨ About Me ✨
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-[![recognizing's GitHub stats](https://github-readme-stats.vercel.app/api?username=recognizing)](https://github.com/recognizing/github-readme-stats)
+
+
+```
+  discord:'thirsty#1000'
+  telegram:'@refilled'
+```
+
+
+
